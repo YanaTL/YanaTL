@@ -1,4 +1,4 @@
-# Hi, I'm Yana👋|Analyst
+# Hi, I'm Yana👋 | Analyst
 
 I am a results-driven Analyst dedicated to transforming complex datasets into clear, actionable business strategies. With a solid foundation in economics and professional experience in both audit and digital marketing, I bridge the gap between technical data processing and real-world business needs.
 
